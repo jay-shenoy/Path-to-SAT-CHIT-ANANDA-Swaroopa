@@ -1,4 +1,6 @@
 # Path-to-SAT-CHIT-ANANDA-Swaroopa
-This is about meditation! Jnana , Bhakthi , Karma , Kriya yoga.
+Human birth is rare , so utilize to full potential to cross barriers of body/Gunas and to have highest realization/Moksha/Nirvana.
 
-To have highest realization/Nirvana/Moksha, cross barriers of body/Gunas
+This is about meditation/Dhyana
+Jnana , Bhakthi , Karma , Kriya yoga.
+
